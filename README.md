@@ -7,5 +7,5 @@ para mi taqueria para poder compartirlo con la gente
 y se pueden mejorar las ventas en la taqueria
 
 **TAQUERIA KALANI LA MEJOR**
-QUERIDO KALANI ERES UNA PERSONA SUPER ESPECIAL Y DIFERENTE
-ESPERO TU PORFIRATIO INICIE PRONTO
+QUERIDO KALANI ERES MI AMIGO
+
